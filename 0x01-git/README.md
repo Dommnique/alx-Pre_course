@@ -1,1 +1,1 @@
-I'm enjoying this training, it is pushing me beyond my comfort zone and to greatness
+I'll continue to give my best to this program
